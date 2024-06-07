@@ -10,5 +10,5 @@ Meu nome é Daiana Moioli
   
   @opps_dai
   
- ![](https://tenor.com/bUHd1.gif)
+ ![](https://media1.tenor.com/m/CsuLEmWlHfcAAAAC/hot.gif)
 
